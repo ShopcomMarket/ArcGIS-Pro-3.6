@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/arcgis-pro-3-6/
 Product Price : 11,500 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
